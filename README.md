@@ -1,0 +1,2 @@
+# AllienCodeFurther-
+MY-PORTFOLIO AS A SOFTWARE DEVELOPER
